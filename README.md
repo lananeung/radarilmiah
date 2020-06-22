@@ -1,2 +1,0 @@
-# radarilmiah
-Sains Terbuka Indonesia
